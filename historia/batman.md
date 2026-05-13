@@ -1,0 +1,2 @@
+# Batman
+Batman [ b ] es un superhéroe que aparece en los cómics estadounidenses publicados por DC Comics . Batman fue creado por el escritor Bill Finger y el artista Bob Kane , y debutó en el número 27 del cómic Detective Comics el 30 de marzo de 1939. En el Universo DC , Batman es el alias de Bruce Wayne , un rico playboy , filántropo e industrial estadounidense que reside en la ficticia Ciudad Gótica . Originalmente millonario, versiones posteriores del personaje lo representan como multimillonario. 
